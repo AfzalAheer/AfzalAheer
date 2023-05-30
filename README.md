@@ -1,4 +1,4 @@
-[![MasterHead]
+<b>☠♔  ђⓔĻ𝓵ό </br> Ŵ𝐎尺𝔩𝕕 </br> 𝕄𝓸ѕⓣ </br> ฬⒺ𝕝cỖｍ€  ✊🎀</b>
 <h1 align="center">Hi 👋, I'm MUHAMMAD AFZAL</h1>
 <h3 align="center">🌸ꗥ～ꗥ🌸 𝐀 𝐏𝐚𝐬𝐬𝐢𝐨𝐧𝐚𝐭𝐞 𝐅𝐫𝐨𝐧𝐭𝐞𝐧𝐝 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫 𝐟𝐫𝐨𝐦 𝐏𝐚𝐤𝐢𝐬𝐭𝐚𝐧 🌸ꗥ～ꗥ🌸</h3>
 <img align="right" alt="Coding" width="400" src="https://i.gifer.com/origin/84/84d79f587caeee69caf306386ec3527d_w200.webp">
